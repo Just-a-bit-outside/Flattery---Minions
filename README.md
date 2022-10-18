@@ -1,2 +1,2 @@
-# Flattery---Minnions
+# Flattery---Minions
 If imitation is the best form of flattery........
